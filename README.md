@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Dayton-Cato
-- 👀 I’m interested in nudes
+- 👀 I’m interested in wemen
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking for an online relationship
 - 📫 How to reach me dcato@gm.lamar.k12.mo.us<!---
